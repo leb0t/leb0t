@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @leb0t
+- 👋 Hi, I’m LeBOT (i'm no where near being a bot tho)
 - 👀 I’m interested in Rick Rolling people
 - 🌱 I’m currently learning how to open a door
 - 😄 Pronouns: Male 🤫🧏
